@@ -1,0 +1,6 @@
+### olá!!! Eu sou a Amanda 🦋
+tenho 14 anos
+Amo jogar volei,ler, entre outras coisas...
+estou no 1 ano do ensino médio, com a intenção de me formar logo...
+you can´t give up without trying first
+![octocat-1723206524588](https://github.com/user-attachments/assets/1c30ed6c-37d0-4d2c-9d27-9e979284e296)
